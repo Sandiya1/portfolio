@@ -68,7 +68,7 @@ Copy and paste the below HTML code into your editor to see the portfolio instant
 
 - **GitHub**: [Sandiya1](https://github.com/Sandiya1)
 - **LinkedIn**: [Sandiya M](https://www.linkedin.com/in/sandiya-m-7a9003280/)
-- **Email**: sandiyal804@gmail.com
+- **Email**: sandiya1804@gmail.com
 
 ---
 
